@@ -1,0 +1,1 @@
+Fișierele care țin de capitole, pe zile.
