@@ -34,4 +34,5 @@
 * [Ziua 30 - O Cebreiro](Zile/ziua_30_-_o_cebreiro.md)
 * [Ziua 31 - Triacastela](Zile/ziua_31_-_triacastela.md)
 * [Ziua 32 - Sarria](Zile/ziua_32_-_sarria.md)
+* Ziua 33 - Portomarin
 
