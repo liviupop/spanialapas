@@ -30,5 +30,5 @@
 * [Ziua 26 - Astorga](Zile/ziua_26_-_astorga.md)
 * [Ziua 27 - El Acebo](Zile/ziua_27_-_el_acebo.md)
 * [Ziua 28 - Ponferrada](Zile/ziua_28_-_ponferrada.md)
-* Ziua 29 - Villafranca del Bierzo
+* [Ziua 29 - Villafranca del Bierzo](Zile/ziua_29_-_villafranca_del_bierzo.md)
 
