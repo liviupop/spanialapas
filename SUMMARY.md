@@ -20,5 +20,5 @@
 * [Ziua 16 - Burgos](Zile/ziua_16_-_burgos.md)
 * [Ziua 17 - San Anton](Zile/ziua_17_-_san_anton.md)
 * [Ziua 18 - Bocadilla del Camino](Zile/ziua_18_-_bocadilla_del_camino.md)
-* Ziua 19 - Carrion de los Condes
+* [Ziua 19 - Carrion de los Condes](Zile/ziua_19_-_carrion_de_los_condes.md)
 
