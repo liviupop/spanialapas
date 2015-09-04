@@ -29,5 +29,5 @@
 * [Ziua 25 - San Martin del Camino](Zile/ziua_25_-_san_martin_del_camino.md)
 * [Ziua 26 - Astorga](Zile/ziua_26_-_astorga.md)
 * [Ziua 27 - El Acebo](Zile/ziua_27_-_el_acebo.md)
-* Ziua 28 - Ponferrada
+* [Ziua 28 - Ponferrada](Zile/ziua_28_-_ponferrada.md)
 
