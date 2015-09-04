@@ -40,5 +40,5 @@
 * [Ziua 36 - Pedruozo](Zile/ziua_36_-_pedruozo.md)
 * [Ziua 37 - Santiago](Zile/ziua_37_-_santiago.md)
 * [Ziua 38 - Negreira](Zile/ziua_38_-_negreira.md)
-* Ziua 39 - Olveiroa
+* [Ziua 39 - Olveiroa](Zile/ziua_39_-_olveiroa.md)
 
