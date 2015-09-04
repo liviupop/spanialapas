@@ -13,5 +13,5 @@
 * [Ziua 9 - Los Arcos](Zile/ziua_09_-_los_arcos.md)
 * [Ziua 10 - Logrono](Zile/ziua_10_-_logrono.md)
 * [Ziua 11 - Ventosa](Zile/ziua_11_-_ventosa.md)
-* Ziua 12 - Azofra
+* [Ziua 12 - Azofra](Zile/ziua_12_-_azofra.md)
 
