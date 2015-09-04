@@ -2,7 +2,7 @@
 
 * [Introduction](README.md)
 * [First Chapter](chapter1.md)
-* [Ziua 1 - Zaragoza](Zile/ziua_01_-_zaragoza_.md)
+* [Ziua 1 - Zaragoza](Zile/ziua_01_-_zaragoza.md)
 * [Ziua 2 - Saint Jean Pied de Port](Zile/ziua_2-_saint_jean_pied_de_port.md)
 * [Ziua 3 - Roncesvalles](ziua3_-_roncesvalles.md)
 * [Ziua 4 - Zubiri](Zile/ziua_4_-_zubiri_md.md)
