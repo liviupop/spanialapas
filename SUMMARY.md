@@ -23,4 +23,5 @@
 * [Ziua 19 - Carrion de los Condes](Zile/ziua_19_-_carrion_de_los_condes.md)
 * [Ziua 20 - Ledigos](Zile/ziua_20_-_ledigos.md)
 * [Ziua 21 - Bercianos del Real Camino](Zile/ziua_21_-_bercianos_del_real_camino.md)
+* Ziua 22 - Mansillas de las Mulas
 
