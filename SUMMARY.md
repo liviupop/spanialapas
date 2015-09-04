@@ -6,4 +6,5 @@
 * [Ziua 2 - Saint Jean Pied de Port](ziua_2_-_saint_jean_pied_de_port.md)
 * [Ziua 3 - Roncesvalles](ziua_3_-_roncesvalles.md)
 * [Ziua 4 - Zubiri](ziua_4_-_zubiri.md)
+* Ziua 5 - Pamplona
 
