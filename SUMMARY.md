@@ -7,4 +7,5 @@
 * [Ziua 3 - Roncesvalles](ziua_3_-_roncesvalles.md)
 * [Ziua 4 - Zubiri](ziua_4_-_zubiri.md)
 * [Ziua 5 - Pamplona](Zile/ziua_5_-_pamplona.md)
+* Ziua 6 - Zariquiegui
 
