@@ -37,5 +37,5 @@
 * [Ziua 33 - Portomarin](Zile/ziua_33_-_portomarin.md)
 * [Ziua 34 - Palas de Rei](Zile/ziua_34_-_palas_de_rei.md)
 * [Ziua 35 - Ribadiso da Baixo](Zile/ziua_35_-_ribadiso_da_baixo.md)
-* Ziua 36 - Pedruozo
+* [Ziua 36 - Pedruozo](Zile/ziua_36_-_pedruozo.md)
 
