@@ -1,0 +1,14 @@
+
+# Ziua 36 Pedruozo
+
+
+
+---
+
+Dupa cea mai proasta noapte de pana acum am pornit tarziu si nervos. O gasca de spanioli au cantat pana tarziu, iar apoi au inceput sa vorbeasca cu voce tare. Cred ca am atipit pentru o jumatate de ora pana cand am fost trezit de zgomotele lor. Eram atat de nervos incat nu am reusit altceva decat sa’mi imaginez cele mai colorate injuraturi intr’o engleza-spaniola-romana de cea mai joasa speta. Dar am tacut. Dimineata insa ceasul unuia dintre ei a sunat la ora 5 jumate si pana la 8 jumate daca am reusut sa mai dorm o ora in total. Asa ca ziua a inceput teribil de prost. Din cauza asta am mers intr’un ritm fara vlaga, posomorat si fara mare chef de mai nimic.
+
+Pe drum am mancat zmeura si mure. Doar cu vreo ora inainte de destinatie am dat de grupul meu hardcore si au reusit sa ma inveseleasca. Am ajuns totusi tarziu in Pedrouzo si daca pana atunci am avut noroc cu cazarea, de data asta s’a terminat. Am gasit doar 2 locuri libere, iar noi eram 4. Asa ca am plecat sa cautam la restul hostelurilor. Toate erau ocupate. Pana la urma am gasit o camera cu 4 locuri si a fost un lux fata de conditiile de pana atunci. Ne’a crescut bine de tot buna dispozitie, aveam o baie doar pentru noi, televizor (o premiera) si multa liniste. Nu am reusit sa dormim, era deja cam tarziu. Asa ca am mers sa mancam, nu aveam o bucatarie la indemana.
+
+In Melide, un oras care are chiar si o alee cu stele pentru celebritatile orasului, in trecere oe langa o pulperia, un nenea mi’a facut semn sa ma apropiu. Cand am ajuns langa fereastra lui imensa deschisa spre trotuar, mi’a aratat caracatita pe care o fierbea, incercand in gluma sa ma sperie. A fost foarte simpatic si m’a invitat inauntru, dar cum atunci mai aveam inca un drum de mers, nu m’am oprit. In Pedruozo insa am insistat sa mergem la pulperia orasului, si ce bine am facut! Ne’am tratat cu caracatita la gril sau facuta bucatele si cu boia. Galicia e faimoasa pentru fructele de mare si am vazut de ce. Sunt delicioase! Iar vinul casei a fost pe masura. Asa ca ziua a fost una de sarbatoare in avanpremiera a sosirii in Santiago.
+
+Dupa ce am mai facut niste cumparaturi am dat inca o tura pe la pulperie, doar ca sa mai bem cate o ceasca de vin (in Galicia se serceste vinul in cesti albe ca de ceai japonez) si ne’am intalnit cu Michril si Adela, o fata pe care o vazusem in ultimele zile cam prin aceleasi locuri ca si noi. Erau la masa si un cuplu spaniol, Oscar si Rosa. Dupa ce am terminat i’am invitat pe Michril si Adela la vin in casa noastra. Am ajuns sa impart patul meu dublu cu Michril, iar Adela a dormit pe jos. Asta dupa ce am vazut un film asiatic cu batai ca le vremuri. Ziua inceputa atat de prost, s’a terminat foarte fain.
