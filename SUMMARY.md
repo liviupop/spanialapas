@@ -17,5 +17,5 @@
 * [Ziua 13 - Santo Domingo de La Calzada](Zile/ziua_13_-_santo_domingo_de_la_calzada.md)
 * [Ziua 14 - Belorado](Zile/ziua_14_-_belorado.md)
 * [Ziua 15 - San Juan de Ortega](Zile/ziua_15_-_san_juan_de_ortega.md)
-* Ziua 16 - Burgos
+* [Ziua 16 - Burgos](Zile/ziua_16_-_burgos.md)
 
