@@ -31,5 +31,5 @@
 * [Ziua 27 - El Acebo](Zile/ziua_27_-_el_acebo.md)
 * [Ziua 28 - Ponferrada](Zile/ziua_28_-_ponferrada.md)
 * [Ziua 29 - Villafranca del Bierzo](Zile/ziua_29_-_villafranca_del_bierzo.md)
-* Ziua 30 - O Cebreiro
+* [Ziua 30 - O Cebreiro](Zile/ziua_30_-_o_cebreiro.md)
 
