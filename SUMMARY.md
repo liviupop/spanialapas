@@ -12,4 +12,5 @@
 * [Ziua 8 - Estella](Zile/ziua_08_-_estella.md)
 * [Ziua 9 - Los Arcos](Zile/ziua_09_-_los_arcos.md)
 * [Ziua 10 - Logrono](Zile/ziua_10_-_logrono.md)
+* Ziua 11 - Ventosa
 
