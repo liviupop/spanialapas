@@ -19,4 +19,5 @@
 * [Ziua 15 - San Juan de Ortega](Zile/ziua_15_-_san_juan_de_ortega.md)
 * [Ziua 16 - Burgos](Zile/ziua_16_-_burgos.md)
 * [Ziua 17 - San Anton](Zile/ziua_17_-_san_anton.md)
+* Ziua 18 - Bocadilla del Camino
 
