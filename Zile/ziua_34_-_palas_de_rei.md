@@ -1,0 +1,14 @@
+
+# Ziua 34 Palas de Rei
+
+
+
+---
+
+Cu cat sunt unii mai grabiti, cu atat mai relaxat devin eu. Stiu ca mai am doar cateva zile, vreo trei pana in Santiago asa ca nu am nici un motiv de panica, aproape orice s’ar intampla, tot voi ajunge cu bine la capat. Dimineata am plecat iar ultimul din cladire, incepe sa’mi placa ritualul asta al meu. Ploua tare si am avut noroc sa gasesc magazinul de articole sportive deschis, asa ca mi’am mai luat o pereche de sosete. M’am gandit ca vreau sa ajung azi la capat si singurul lucru care m’ar opri ar fi picioarele ude. Nu prea aveam ce sa fac in privinta papucilor, dar cu inca o pereche de sosete as fi reusit sa imi pastrez talpile uscate.
+
+Din fericire am mers doar cam o ora prin ploaie mai serioasa si nu m’am udat atat de tare pe picioare. Mai mult, am mers cam 10, 12 kilometri de’a lungul soselei, care era paralela cu cararea clasica. Asa ca am evitat si multimea, si baltile, si noroiul, si pantele mai accentuate. Am mers repede si am reusit sa recuperez cam o ora fata de restul. Pe la ora 1 jumate eram deja in Palas de Rei, am facut doar o pauza cam de jumatate de ora. Sunt surprins de rezistenta la mers pe care am dobandit’o, iar rucsacul mai ca nu’l simt in spate. Asa ca e ca si cand as merge la plimbare, putin grabit.
+
+Impreuna cu Wiebke ne gandeam sa mergem mai departe de Palas de Rei daca nu gasim paturi libere, dar erau surpinzator de multe locuri libere. Asa ca am asteptat’o pe mama ei si ne’am decis cu totii ca nu are rost sa riscam sa mergem mai departe daca am gasit destule locuri aici. A fost o zi care pare scurta de mers, cu totii am fi putu merge mai departe. In schimb am gustat din siesta, eu chiar o portie dubla. Am dormit 4 ore. O fi din cauza ca ieri noapte am stat treaz timp de vreo 2 ore.
+
+La putin timp dupa ce m’am trezit am inceput sa facem o supa si a fost buna. Ca de obicei a luat mai mult timp decat ne’am asteptat, dar nu’i ca si cand duci lipsa de timp pe drum. Din nou a trebuit sa ne descurcam cu putinele vase si tacamuri pe care le’am gasit in bucatarie, dar nici unul dintre noi nu e mega pretentios si cu totii preferam sa gatim orice decat sa avem parte de un meniu al pelerinului care e cam o bataie de joc. In Sarria de exemplu, mancarea era aproape rece si painea era la suprapret. Bucatarie oricat de sumara e binevenita. Seara a venit repede si am mai stat un pic cu Wiebke la povesti, mi’a aratat proiectele la care lucreaza si am fost impresionat. Cred ca scena de divertisment olandeza e mult mai bine dezvoltatata decat cea romaneasca si sunt spectacole foarte bine puse la punct. Mi’au placut tare toate cele trei proiecte in care colaboreaza, sunt diverse si pentru public foarte diferit. Au mai ramas cam 70 de kilometri de mers si par atat de putini. Noroc ca mai e drumul pana in Finisterre.
