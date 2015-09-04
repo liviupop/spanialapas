@@ -36,5 +36,5 @@
 * [Ziua 32 - Sarria](Zile/ziua_32_-_sarria.md)
 * [Ziua 33 - Portomarin](Zile/ziua_33_-_portomarin.md)
 * [Ziua 34 - Palas de Rei](Zile/ziua_34_-_palas_de_rei.md)
-* Ziua 35 - Ribadiso da Baixo
+* [Ziua 35 - Ribadiso da Baixo](Zile/ziua_35_-_ribadiso_da_baixo.md)
 
