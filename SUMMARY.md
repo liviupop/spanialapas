@@ -42,5 +42,5 @@
 * [Ziua 38 - Negreira](Zile/ziua_38_-_negreira.md)
 * [Ziua 39 - Olveiroa](Zile/ziua_39_-_olveiroa.md)
 * [Ziua 40 - Cee](Zile/ziua_40_-_cee.md)
-* Ziua 41 - Fisterra
+* [Ziua 41 - Fisterra](Zile/ziua_41_-_fisterra.md)
 
