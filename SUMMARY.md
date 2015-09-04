@@ -11,5 +11,5 @@
 * [Ziua 7  - Puente dela Reina](Zile/ziua_07_-_puente_dela_reina.md)
 * [Ziua 8 - Estella](Zile/ziua_08_-_estella.md)
 * [Ziua 9 - Los Arcos](Zile/ziua_09_-_los_arcos.md)
-* Ziua 10 - Logrono
+* [Ziua 10 - Logrono](Zile/ziua_10_-_logrono.md)
 
