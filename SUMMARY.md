@@ -9,4 +9,5 @@
 * [Ziua 5 - Pamplona](Zile/ziua_5_-_pamplona.md)
 * [Ziua 6 - Zariquiegui](Zile/ziua_6_-_zariquiegui.md)
 * [Ziua 7  - Puente dela Reina](Zile/ziua_7_-_puente_dela_reina.md)
+* Ziua 8 - Estella
 
