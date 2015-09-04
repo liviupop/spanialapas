@@ -33,5 +33,5 @@
 * [Ziua 29 - Villafranca del Bierzo](Zile/ziua_29_-_villafranca_del_bierzo.md)
 * [Ziua 30 - O Cebreiro](Zile/ziua_30_-_o_cebreiro.md)
 * [Ziua 31 - Triacastela](Zile/ziua_31_-_triacastela.md)
-* Ziua 32 - Sarria
+* [Ziua 32 - Sarria](Zile/ziua_32_-_sarria.md)
 
