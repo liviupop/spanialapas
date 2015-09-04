@@ -15,5 +15,5 @@
 * [Ziua 11 - Ventosa](Zile/ziua_11_-_ventosa.md)
 * [Ziua 12 - Azofra](Zile/ziua_12_-_azofra.md)
 * [Ziua 13 - Santo Domingo de La Calzada](Zile/ziua_13_-_santo_domingo_de_la_calzada.md)
-* Ziua 14 - Belorado
+* [Ziua 14 - Belorado](Zile/ziua_14_-_belorado.md)
 
