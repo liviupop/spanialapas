@@ -24,5 +24,5 @@
 * [Ziua 20 - Ledigos](Zile/ziua_20_-_ledigos.md)
 * [Ziua 21 - Bercianos del Real Camino](Zile/ziua_21_-_bercianos_del_real_camino.md)
 * [Ziua 22 - Mansillas de las Mulas](Zile/ziua_22_-_mansillas_de_las_mulas.md)
-* Ziua 23 - Leon (1)
+* [Ziua 23 - Leon (1)](Zile/ziua_23_-_leon_1.md)
 
