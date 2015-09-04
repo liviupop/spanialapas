@@ -10,4 +10,5 @@
 * [Ziua 6 - Zariquiegui](Zile/ziua_06_-_zariquiegui.md)
 * [Ziua 7  - Puente dela Reina](Zile/ziua_07_-_puente_dela_reina.md)
 * [Ziua 8 - Estella](Zile/ziua_08_-_estella.md)
+* Ziua 9 - Los Arcos
 
