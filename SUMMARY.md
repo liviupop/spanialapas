@@ -27,4 +27,5 @@
 * [Ziua 23 - Leon (1)](Zile/ziua_23_-_leon_1.md)
 * [Ziua 24 - Leon (2)](Zile/ziua_24_-_leon_2.md)
 * [Ziua 25 - San Martin del Camino](Zile/ziua_25_-_san_martin_del_camino.md)
+* Ziua 26 - Astorga
 
