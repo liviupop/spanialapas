@@ -41,5 +41,5 @@
 * [Ziua 37 - Santiago](Zile/ziua_37_-_santiago.md)
 * [Ziua 38 - Negreira](Zile/ziua_38_-_negreira.md)
 * [Ziua 39 - Olveiroa](Zile/ziua_39_-_olveiroa.md)
-* Ziua 40 - Cee
+* [Ziua 40 - Cee](Zile/ziua_40_-_cee.md)
 
