@@ -8,4 +8,5 @@
 * [Ziua 4 - Zubiri](ziua_4_-_zubiri.md)
 * [Ziua 5 - Pamplona](Zile/ziua_5_-_pamplona.md)
 * [Ziua 6 - Zariquiegui](Zile/ziua_6_-_zariquiegui.md)
+* Ziua 7  - Puente dela Reina
 
