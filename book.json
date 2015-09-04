@@ -8,9 +8,13 @@
     "pluginsConfig": {
         "autocover": {
             // Configuration for autocover (see below)
-            {
-    "title": "My Book",
-    "author": "Author",
+           
+        }
+    }
+}
+ {
+    "title": "spania la pas",
+    "author": "Liviu Pop",
     "font": {
         "size": null,
         "family": "Impact",
@@ -22,8 +26,5 @@
     },
     "background": {
         "color": "#09F"
-    }
-}
-        }
     }
 }
